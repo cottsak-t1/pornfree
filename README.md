@@ -1,4 +1,4 @@
-# Porn Is Dangerous
+# Porn Is Dangerous, yes!
 
 But you know that already; that's why you're here. This guidance is designed for the non tech savvy of you who want to employ best practises to protect yourself from the devestating impact of porn.
 
